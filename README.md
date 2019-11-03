@@ -2,4 +2,4 @@
 
 ## THE CUBE
 
-![Alt text](C:\Users\boaz\Desktop\gMAE pHOTO)
+![Alt text](C:\Users\boaz\Desktop\gMAE pHOTO\2.png)
